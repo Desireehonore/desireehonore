@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @desireehonore
-- 👀 I’m interested in becoming a mobile app developer
+- 👀 I’m interested in becoming a UX/UI Developer
 - 🌱 I’m currently majoring in computer science
 - 💞️ I’m looking to collaborate on fun, innovating projects
 - 📫 How to reach me: by email: honoredesiree@gmail.com 
